@@ -1,1 +1,0 @@
-# seriesday-inter
